@@ -8,3 +8,4 @@
 ### ~~這是回音~~
 [AI醬 人工智障]https://www.youtube.com/watch?v=geJDGYv0duo
 :+1:
+images.jpg
